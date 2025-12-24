@@ -5,5 +5,6 @@ Olá, eu sou o Suadique Kundje! 👋
 ​Produtividade: Aplicativos que facilitam o dia a dia.
 ​Internet e Curiosidades: Tutoriais sobre como navegar melhor.
 ​📱 Minhas Redes:
+
 ​YouTube: https://youtube.com/@suadiquekundje_dicas?si=-DFf5nnRCHe5BCsi
-​TikTok: https://www.tiktok.com/@suadiquekundje_dicas?_r=1&_t=ZS-92UMLp1mN97
+​TikTok:https://www.tiktok.com/@suadiquekundje_dicas?_r=1&_t=ZS-92UMLp1mN97
